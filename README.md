@@ -1,1 +1,2 @@
-# Kn-sniper2017.github.io
+goodies website for storing stuff online forever...
+all art are made by cryade (me) :3
